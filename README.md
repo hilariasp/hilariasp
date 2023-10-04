@@ -4,6 +4,8 @@
 
 4x medalhista na OBA
 
+2x bolsista do PICjr
+
 Atualmente ingressando o segundo ano do ensino médio no Instituto Federal Baiano de Educação, Ciência e Tecnologia - Campus Guanambi
 
 ## 📊GitHub Stats:
