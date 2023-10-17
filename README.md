@@ -6,12 +6,6 @@
 
 ## ✏️Sobre mim:
 
-1x medalhista na OBMEP
-
-4x medalhista na OBA
-
-2x bolsista do PICjr
-
 Atualmente ingressando o segundo ano do ensino médio no Instituto Federal Baiano de Educação, Ciência e Tecnologia - Campus Guanambi
 
 Cursando o curso de informática para internet
